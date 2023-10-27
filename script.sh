@@ -1,2 +1,2 @@
 
-Hello, my name is Alex and today is the 26th
+Hey, my name is Alex and today is the 26th
